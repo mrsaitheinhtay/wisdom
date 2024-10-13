@@ -1,0 +1,2 @@
+# wisdom
+learn and earn
